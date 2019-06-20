@@ -2,4 +2,4 @@
 This is an animation made it for Castillo Celis Jesus Ashier
 
 # Description
-Is about three ESCOM students that escape of a lot of zombies and run into diferent ESCOM club locations
+Is about a man that cross the desert to leave his town to go a better place to live, however, his travel has a unespected end
